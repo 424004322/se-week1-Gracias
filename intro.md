@@ -1,0 +1,2 @@
+Im Gracias, Software engineer Supervisor and Manager. My primary role is overseeing the whole project and processes involved.
+Ensuring the timeframe, consistency, and logs are on point. My role is crucial as I validate everything that it meets the standard.
